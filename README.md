@@ -206,3 +206,8 @@
 * Vaporwave by After Eating, 👉🏼 [Spotify](https://open.spotify.com/playlist/17HYiAIcwlDEg5RgVkm4L7?si=t0V-XmsXRIOX9AgajKc0zA)
 
 * Vaporwave (Long) by George Clanton, 👉🏼 [Spotify](https://open.spotify.com/playlist/0nQISPetnTE1srJa9FDY1t?si=eguIgU71RGK-X4YVbBXniw)
+
+## My personal additions
+* Strobe by Deadmau5 : [Youtube](https://www.youtube.com/watch?v=tKi9Z-f6qX4)
+* Memory Reboot by Narvent : [Youtube](https://www.youtube.com/watch?v=wL8DVHuWI7Y)
+* Silence by 5admin : [Youtube](https://www.youtube.com/watch?v=TfWHBr6i3sQ)
